@@ -1,1 +1,1 @@
-Long Rim Mech Data for Comp/Con
+People's Vanguard Data for Comp/Con
